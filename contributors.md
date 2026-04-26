@@ -1,4 +1,8 @@
-* Harsh Sharma
-VedanshuMeharia
-* Triptee Maurya
 
+- Chakshu
+- Harsh Sharma
+- Prayag Bhalodia
+- VedanshuMeharia
+- Chaitanya Garg
+- Ashish Pandey
+- Triptee Maurya
